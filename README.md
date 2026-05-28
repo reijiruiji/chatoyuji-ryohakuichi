@@ -1,2 +1,0 @@
-# chatoyuji-ryohakuichi
-chatoyuji-ryohakuichi
